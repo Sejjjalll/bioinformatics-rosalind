@@ -1,1 +1,1 @@
-
+I use an AI assistant as a versatile tool to enhance my learning, productivity, and problem-solving across multiple domains. The AI serves as both a tutor and a productivity aid, helping me navigate complex concepts, summarize information, and generate practical solutions.
